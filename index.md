@@ -1,4 +1,3 @@
 ### Name
-
-###Education
+### Education
 
